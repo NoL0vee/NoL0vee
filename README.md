@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @NoL0vee
+- 👀 I’m interested in killing myself.
+- 🌱 I’m currently learning how to be a parent?
+- 💞️ I’m looking to collaborate on. Stuff.
+- 📫 How to reach me .don't even try.
+-  why am I here no reason I might end it soon.
